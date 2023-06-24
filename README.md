@@ -14,3 +14,5 @@ Teja Gelli, 700745495
 Ramyasri Devarakonda, 700741543
 
 Chandra Shekar Kaviti, 700755552
+
+Assignment 2 video link: https://drive.google.com/file/d/1w9bnNpVN1nvklJY-Ng-xw40IhOWVq-Fp/view?usp=sharing  
